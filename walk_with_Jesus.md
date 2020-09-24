@@ -12,6 +12,9 @@
  #### Phlip 4:4 - Rejoice
  Rejoice in the Lord always; again I will say, Rejoice.
  
+ #### 1 Peter 2:2,3 - Grow spirutually 
+ 
+ 2 Like newborn infants, long for the pure spiritual milk, that by it you may grow up into salvation - 3 if indeed you have tasted that the Lord is good.
  
  
  
