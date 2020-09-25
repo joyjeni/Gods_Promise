@@ -16,5 +16,8 @@
  
  2 Like newborn infants, long for the pure spiritual milk, that by it you may grow up into salvation - 3 if indeed you have tasted that the Lord is good.
  
+ #### Ezekiel 37:14
+ And I will put my Spirit within you, and you shall live, and I will place you in your own land. Then you shall know that I am the LORD; I have spoken, and I will do it, declares the LORD.
+ 
  
  
