@@ -23,4 +23,7 @@
  
  I will restore to you the years that the swarming locust has eaten, the hopper, the destroyer, and the cutter, my great army, which I sent among you.
  
+ #### Exodus 33: 17 God knows you
+ 
+ I know you by name.
  
