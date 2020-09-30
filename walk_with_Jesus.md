@@ -30,5 +30,7 @@
  #### Proverbs 4:23
  Keep your heart with all vigilance,for from it flow the springs of life.
  
- 
+ #### Joel 2:26 Never again be put to shame
+ You shall eat in plenty and be satisfied, and praise the name of the Lord your God, who has dealt wondrously with you. And my people shall never again be put to shame.
+ Y
  
