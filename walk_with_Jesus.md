@@ -32,5 +32,7 @@
  
  #### Joel 2:26 Never again be put to shame
  You shall eat in plenty and be satisfied, and praise the name of the Lord your God, who has dealt wondrously with you. And my people shall never again be put to shame.
- Y
+ 
+ #### 1 Cor 15:57 God gives Victory
+ Thanks be to God, who gives us the victory through our Lord Jesus Christ.
  
