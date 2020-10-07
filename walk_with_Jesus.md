@@ -36,3 +36,10 @@
  #### 1 Cor 15:57 God gives Victory
  Thanks be to God, who gives us the victory through our Lord Jesus Christ.
  
+ ### Psalms: 142:3 Tell your troubles to God
+ I pour out my complaint before him. I tell my trouble before him.
+ 
+ 
+ 
+ 
+ 
