@@ -4,3 +4,6 @@ Therefore stand still and see this great things that the Lord will do before you
 
 ### Deliverence Psalm 50: 15
 I will deliver you, and you shall glorify me.
+
+#### Gracious God Isaiah 30: 18
+The Lord waits to be gracious to you, and therefore he exalts himself to show mercy to you.
