@@ -39,6 +39,11 @@
  ### Psalms: 142:3 Tell your troubles to God
  I pour out my complaint before him. I tell my trouble before him.
  
+ ### Psalms: 147: 13 God Strenthens and Bless You
+ For he strengthens the bars of your gates; he blesses your children within you.
+ 
+ 
+ 
  
  
  
