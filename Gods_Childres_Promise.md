@@ -7,3 +7,8 @@ I will deliver you, and you shall glorify me.
 
 #### Gracious God Isaiah 30: 18
 The Lord waits to be gracious to you, and therefore he exalts himself to show mercy to you.
+
+#### Malachi 4:2 Righteousness and healing
+
+But for you who fear my name, the sun of righteousness shall raise with healing in its wings.
+
