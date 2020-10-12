@@ -42,6 +42,10 @@
  ### Psalms: 147: 13 God Strenthens and Bless You
  For he strengthens the bars of your gates; he blesses your children within you.
  
+ #### Leviticus 20: 26 You are mine
+ You shall be holy to me, for I the Lord am holy  and have seperated you from the peoples, that you should be mine.
+ 
+ 
  
  
  
