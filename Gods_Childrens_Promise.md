@@ -12,3 +12,6 @@ The Lord waits to be gracious to you, and therefore he exalts himself to show me
 
 But for you who fear my name, the sun of righteousness shall raise with healing in its wings.
 
+#### Isaiah 54: 14
+In righteousness you shall be established; you shall be far from oppression, for you shall not fear; and from terror; for it shall not come near you.
+
